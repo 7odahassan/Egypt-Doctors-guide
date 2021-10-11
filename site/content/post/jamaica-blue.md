@@ -1,28 +1,27 @@
 ---
-title: 'Just in: small batch of Jamaican Blue Mountain in store next week'
-date: 2017-01-04T15:04:10.000Z
-description: >-
-  We’re proud to announce that we’ll be offering a small batch of Jamaica Blue
-  Mountain coffee beans in our store next week.
+title: كبسولة تكميم المعدة،أعرف أكثر عن احدث طرق خسارة الوزن
+date: 11-10-2021
 ---
+## كبسولة تكميم المعدة      
+[كبسولة تكميم المعدة](https://drahmedibrahim.com/%D9%83%D8%A8%D8%B3%D9%88%D9%84%D8%A9-%D8%AA%D9%83%D9%85%D9%8A%D9%85-%D8%A7%D9%84%D9%85%D8%B9%D8%AF%D8%A9/) تلك الكبسولة المستحدثة والتي يطلق عليها الجميع اسم الكبسولة السحرية، او الكبسولة الذكية، والتي تساهم بشكل كبير على انقاص الوزن ومساعدة الشخص في أن يصل إلى الوزن الذي يرغب به، لذا نجد الجميع يبحث عن تلك الكبسولة بشكل كبير وهذا رغبة منه في تجربة تلك التقنية الحديثة، لذلك قررنا أن نتنازل في مقالنا هذا كافة المعلومات التي تخص تلك الكبسولة.
 
-We expect the shipment of a limited quantity of green beans next Monday. We’ll be offering the roasted beans from Tuesday, but quantities are limited, so be quick.
+## الكبسولة المبرمجة الذكية
+تعد تلك الكبسولة هي الأحدث على الإطلاق في مشكلة السمنة حيث أنها تساعد بشكل كبير في خسارة الوزن، وذلك دون الخضوع لعمليات جراحية او استخدام المنظار من أجل أن يحققوا الوزن المثالي الخاص بهم
+أحدث تقنية تم تطويرها لخسارة الوزن لمُحبى الطعام وأصحاب الوزن الزائد الذين يرهبون العمليات الجراحية والمناظير.
 
-Blue Mountain Peak is the highest mountain in Jamaica and one of the highest peaks in the Caribbean at 7,402 ft. It is the home of Blue Mountain coffee and their famous tours. It is located on the border of the Portland and Saint Thomas parishes of Jamaica.
+## تركيب الكبسولة
+تأخذ تلك الكبسولة مدة زمنية قليل للغاية ، حيث يتم بلع تلك الكبسولة من خلال استخدام كوب ماء يساعد في عملية البلع، ولا يخضع الشخص المصاب بالسمنة المفرطة إلى عملية جراحية، او الخضوع إلى المكوث داخل المستشفى.
+ ماهى الكبسولة المبرمجة ELLIPSE ؟
+الكبسولة المبرمجة ( الذكية ) Elipse هو البالون الأول عالمياً لفقدان الوزن الذى يتم وضعه بالمعدة و إزالته دون الحاجة إلى جراحة أو منظار أو تخدير ، يتم إبتلاعها بكوب من الماء وبعدها يتم ضخها بمحلول معقم يساعد على انتفاخها لتصبح كالبالونة و تشغل حيز من المعدة مما يساعد الشخص على الشعور بالشبع بعد تناول كمية طعام أقل مما كان قبل تركيب الكبسولة و ذلك يساعد فى خسارة الوزن الزائد.
 
-## A little history
 
-The Blue Mountains are considered by many to be a hiker's and camper's paradise. The traditional Blue Mountain trek is a 7-mile hike to the peak and consists of a 3,000-foot increase in elevation. Jamaicans prefer to reach the peak at sunrise, thus the 3–4 hour hike is usually undertaken in darkness. Since the sky is usually very clear in the mornings, Cuba can be seen in the distance.
+ ## خطوات تركيب  الكبسولة المبرمجة للتخسيس
+إليكم الخطوات الخاصة بتركيب الكبسولة المبرمجة من أجل خسارة الوزن:-
+●	يتم ابتلاع الكبسولة من قبل المريض، وذلك من خلال احتواء الكبسولة على بالون متصل بشكل أساسي بأنبوب رفيع للغاية.
+●	في حال تم التأكد من أن الكبسولة استقرت نهائيا داخل المعدة يبدأ الطبيب باستخراج الأنبوب بشئ من اللطف واللين.
+●	يبدأ البالون المتواجد داخل المعدة بالتحليل وذلك بعد مرور ما يقارب الأربعة اشهر، ويخرج من خلال الجهاز الهضمي عن طريق الفضلات.
+في النهاية يمكننا القول أن البالون يساهم بشكل كبير في خسارة الوزن، فضلا عن إمكانيته على توصيل الشعور بالشبع وعدم الحاجة إلى الأكل، وذلك من أجل تحقيق مهمة كبيرة الا وهي إنقاص الوزن .
 
->Some of the plants found on the Blue Mountain cannot be found anywhere else in the world and they are often of a dwarfed sort.
+## عملية تكميم المعدة بالمنظار
 
-This is mainly due to the cold climate which inhibits growth. The small coffee farming communities of Claverty Cottage and Hagley Gap are located near the peak.
-
-## What you need to know before trying
-
-Jamaican Blue Mountain Coffee or Jamaica Blue Mountain Coffee is a classification of coffee grown in the Blue Mountains of Jamaica. The best lots of Blue Mountain coffee are noted for their mild flavor and lack of bitterness. Over the past few decades, this coffee has developed a reputation that has made it one of the most expensive and sought-after coffees in the world. Over 80% of all Jamaican Blue Mountain Coffee is exported to Japan. In addition to its use for brewed coffee, the beans are the flavor base of Tia Maria coffee liqueur.
-
-Jamaican Blue Mountain Coffee is a globally protected certification mark, meaning only coffee certified by the Coffee Industry Board of Jamaica can be labeled as such. It comes from a recognized growing region in the Blue Mountain region of Jamaica, and its cultivation is monitored by the Coffee Industry Board of Jamaica.
-
-The Blue Mountains are generally located between Kingston to the south and Port Antonio to the north. Rising 7,402 ft, they are some of the highest mountains in the Caribbean. The climate of the region is cool and misty with high rainfall. The soil is rich, with excellent drainage. This combination of climate and soil is considered ideal for coffee.
-
+إن تلك العملية هي تدخل جراحي يتم من خلالها قص جزء كبير من المعدة وذلك لمنع المريض من الإفراط في تناول الأكل،ويتم استخدام المنظار من أجل القيام بتلك العملية عن طريق عدة شقوق صغيرة الحجم يتم عملها في البطن، وفي مناطق متفرقة ليسهل وصول الأدوات المستخدمة في العملية إلى الوصول إلى المعدة والقيام بقص جزء منها.
